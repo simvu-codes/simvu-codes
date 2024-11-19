@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @simvu-codes
 - 👀 I’m interested in a lot of things, really.
-- 🌱 I’m currently learning to engage with technology. 
+- 🌱 I’m currently learning to engage with technology, amongst other things, that is.
 - 💞️ I’m looking to collaborate on ... Im not sure. Lets put a pin on it, yes?? 
 - 📫 How to reach me ... they dont have private sections for engagement here?? I'll check, if not, I'll update. 
 - 😄 Pronouns: she/her 
